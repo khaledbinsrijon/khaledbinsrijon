@@ -10,6 +10,6 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ... WEB 3.0
 - 🤔 I’m looking for help with ... AI Agent
 - 📫 How to reach me: ... khaledbinsrijon2500@gmail.com
-- 😄 Pronouns: ... He/His
+- 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: Like To Play Football 
 
